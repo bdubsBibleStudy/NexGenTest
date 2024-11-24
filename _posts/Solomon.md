@@ -1,5 +1,5 @@
 ---
-tags: 
+date: 2024-11-23
 share: "true"
 ---
 #NexGen #characterstudies #solomon #wisdom #lbc 
