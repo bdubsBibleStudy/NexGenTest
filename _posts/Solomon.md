@@ -27,7 +27,7 @@ share: "true"
 		2. <mark style="background: #00FFD3E0;">What's interesting though is the reasoning</mark>...in <mark style="background: #E100FFBA;">vs 2</mark>, the writer says that there was no house of the Lord in that time so the people resorted to sacrifices in the Canaanite high places.
 		3. This was warned against in <mark style="background: #E100FFBA;">Deuteronomy</mark> <mark style="background: #E100FFBA;">12:1-9</mark> - because they weren't in their forever home yet.
 2. ## The folly of marrying outside your faith
-	1. he was close with the enemy -<mark style="background: #E100FFBA;"> 1 Kings 3:1</mark>
+	1. he was close with the enemy -<mark style="background: #E100FFBA;"> 1 Kings 3:1</mark> (we see that he actually married Pharaoh's daughter in 1 Kings 9:16)
 	2. <mark style="background: #E100FFBA;">Deuteronomy 7:2-5</mark> - they were forbidden from marrying the pagans in the land. <mark style="background: #3EFF00E0;">Why</mark>?? To protect against being led astray.
 	3. <mark style="background: #00FFD3E0;">Let's apply this to our lives now today</mark>...<mark style="background: #3EFF00E0;">is it ok to date an unbeliever? </mark>
 		1. the Bible says marrying isn't good, but can I at least date them??
@@ -35,7 +35,13 @@ share: "true"
 		1. Solomon talks about this, in even more extreme terms in <mark style="background: #E100FFBA;">Ecclesiastes 8:14</mark>. Let's put this into today's terms...Life isn't always fair! <mark style="background: #3EFF00E0;">But what's our hope as Christians?</mark> Solomon expounds on this in <mark style="background: #E100FFBA;">8:12-13.</mark> 
 		2. David shares about the end of man in <mark style="background: #E100FFBA;">Psalms 37</mark>:7, 9-13, 16-20. <mark style="background: #00FFD3E0;">We all die, but the righteous and the wicked will both have a different end. </mark>
 			1. <mark style="background: #FBFF00E0;">Ok, we all know I like to bring this up from time to time. </mark>We all know it, but I don't want to take for granted our salvation. <mark style="background: #3EFF00E0;">How are we known as righteous? </mark>Through Christ's blood and faith in Him that covers our sin in His righteousness!! (Romans 3:24-25)
-4. ## Multiplication!
-	1. Wives
-	2. Gold & silver
-	3. Horses & Chariots - some trust in horses (<mark style="background: #E100FFBA;">Psalms 20:5-9</mark>)
+4. ## Multiplication! See <mark style="background: #E100FFBA;">Deuteronomy 17:14-20</mark>; 2 Chronicles 9
+	1. Wives - 700 of them! And 300 concubines - let's read<mark style="background: #E100FFBA;"> 1 Kings 11:1-13</mark>. Let's pay attention to the spiral. Remember back in 1 Kings 3, he made affinity with Pharaoh. Then he took his daughter. Now he's built a temple and done so many wondrous things for God. And it's the little word, "but," that takes us into an expose of his sin...
+		1. consequences:
+			1. pursuit of false gods
+			2. compromise of holiness in the land
+			3. broken fellowship with God resulting in coming division
+	2. Gold and silver - <mark style="background: #E100FFBA;">1 Kings 10:18-25</mark>
+			1. he had enough, yet still levied a tax upon the people.
+			2. you can see him now flaunting the wealth and continuing to get more. You see at the end of his life, he's learned the truth of wealth. See <mark style="background: #E100FFBA;">Ecclesiastes 5:10-14, 18-19</mark>
+	3. Horses and Chariots - some trust in horses (<mark style="background: #E100FFBA;">Psalms 20:5-9</mark>)
